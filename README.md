@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌸Hi, I’m Cathyren Sacatani, you can address me as Athy!<br>👀 I’m interested in web and game development<br>🌱 I’m currently learning Augmented Reality<br>📫 How to reach me, send me an email to sacatanicathyren@gmail.com<br>😄 Pronouns: she/her<br>⚡ Fun fact: I like programming alone.
+🌸Hi, I’m Cathyren Sacatani, you can address me as Athy!<br>👀 I’m interested in web and game development<br>🌱 I’m currently learning Augmented Reality<br>📫 How to reach me, send me an email to sacatanicathyren@gmail.com<br>😄 Pronouns: she/her<br>⚡ Fun fact: I like baking and cycling.
 
 
 ## 🌐 Socials:
